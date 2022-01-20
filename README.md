@@ -1,5 +1,6 @@
 ### Olá! Sou, Erico Bastos 👋
 - 🌱 Atualmente estou aprendendo...
+- fazendo o melhor na condição que tenho enquanto não tenho condições melhores para fazer ainda melhor!
 
 
 <div align="center">
